@@ -19,3 +19,16 @@
 ![SenacHubAcademyCloudComputingArquiteturaDeSistemaAulaInvertida09](https://user-images.githubusercontent.com/93165498/144712387-05e3ae32-934a-4ec4-9056-d40987b96adb.png)
 
 ![SenacHubAcademyCloudComputingArquiteturaDeSistemaAulaInvertida10](https://user-images.githubusercontent.com/93165498/144712409-efcf37ef-a1ee-446f-9352-ab306fc13f10.png) 
+
+![SenacHubAcademyCloudComputingArquiteturaDeSistemaAulaInvertida11](https://user-images.githubusercontent.com/93165498/144712445-d8fb2bdd-22b4-46d8-a871-97bda8a9b94a.png)
+
+![SenacHubAcademyCloudComputingArquiteturaDeSistemaAulaInvertida12](https://user-images.githubusercontent.com/93165498/144712470-3b8471a3-05bb-4662-928f-80a91d4f3831.png) 
+
+![SenacHubAcademyCloudComputingArquiteturaDeSistemaAulaInvertida13](https://user-images.githubusercontent.com/93165498/144712512-7e3d81f2-7b0f-4dce-b0d7-6de95906d35b.png)
+
+![SenacHubAcademyCloudComputingArquiteturaDeSistemaAulaInvertida14](https://user-images.githubusercontent.com/93165498/144712535-098c7154-c448-41ba-ac7a-fbf46b68728f.png)
+
+![SenacHubAcademyCloudComputingArquiteturaDeSistemaAulaInvertida18]
+![SenacHubAcademyCloudComputingArquiteturaDeSistemaAulaInvertida17]
+![SenacHubAcademyCloudComputingArquiteturaDeSistemaAulaInvertida16]
+![SenacHubAcademyCloudComputingArquiteturaDeSistemaAulaInvertida15]
