@@ -28,6 +28,16 @@
 
 ![SenacHubAcademyCloudComputingArquiteturaDeSistemaAulaInvertida14](https://user-images.githubusercontent.com/93165498/144712535-098c7154-c448-41ba-ac7a-fbf46b68728f.png)
 
+## 1a. Turma de #CloudComputing no #HubAcademy do #SenacMS 
+
+![SENAChub 2021 11 19 Curso Cloud Computing 05](https://user-images.githubusercontent.com/93165498/142646157-cde0c14e-cec2-4f0f-88e4-6f2f1c64c22c.jpg)
+
+![SENAChub 2021 11 19 Curso Cloud Computing 06](https://user-images.githubusercontent.com/93165498/142645702-5b23bbc9-88ec-4824-9f1d-0f006528e8ac.jpg)
+
+![SENAChub 2021 11 19 Curso Cloud Computing 05b](https://user-images.githubusercontent.com/93165498/142652444-4410ddf4-ffe0-4016-b9e7-adb5347dfd60.jpg) 
+
+![SENAChub 2021 11 19 Curso Cloud Computing 07](https://user-images.githubusercontent.com/93165498/142645729-db9267f5-7fd9-48b2-8086-fa6c844e247b.jpg) 
+
 ![SenacHubAcademyCloudComputingArquiteturaDeSistemaAulaInvertida18]
 ![SenacHubAcademyCloudComputingArquiteturaDeSistemaAulaInvertida17]
 ![SenacHubAcademyCloudComputingArquiteturaDeSistemaAulaInvertida16]
