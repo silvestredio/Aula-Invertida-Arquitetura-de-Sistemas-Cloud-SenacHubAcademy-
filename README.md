@@ -36,7 +36,9 @@
 
 ![SENAChub 2021 11 19 Curso Cloud Computing 05b](https://user-images.githubusercontent.com/93165498/142652444-4410ddf4-ffe0-4016-b9e7-adb5347dfd60.jpg) 
 
-![SENAChub 2021 11 19 Curso Cloud Computing 07](https://user-images.githubusercontent.com/93165498/142645729-db9267f5-7fd9-48b2-8086-fa6c844e247b.jpg) 
+![SENAChub 2021 11 19 Curso Cloud Computing 07](https://user-images.githubusercontent.com/93165498/142645729-db9267f5-7fd9-48b2-8086-fa6c844e247b.jpg)  
+
+![SENAChub 2021 Cloud Computing BANNER](https://user-images.githubusercontent.com/93165498/144753506-80e706c7-5d57-450f-9660-96c45b745212.jpg)
 
 ![SenacHubAcademyCloudComputingArquiteturaDeSistemaAulaInvertida18]
 ![SenacHubAcademyCloudComputingArquiteturaDeSistemaAulaInvertida17]
